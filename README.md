@@ -1,1 +1,0 @@
-# PC-Primeiro-B-AJ
